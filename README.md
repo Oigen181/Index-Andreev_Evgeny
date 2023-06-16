@@ -6,6 +6,6 @@
 
 ### Задание 2
 
-![122](https://github.com/Oigen181/Index-Andreev_Evgeny/assets/126493876/6fccf694-3bdc-4ec6-b823-fa020ee1dd97)
+![123](https://github.com/Oigen181/Index-Andreev_Evgeny/assets/126493876/73c3e0e6-21e8-4d81-af4d-a49f4b2ace85)
 
 ---
