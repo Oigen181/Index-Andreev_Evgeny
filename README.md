@@ -8,4 +8,6 @@
 
 ![123](https://github.com/Oigen181/Index-Andreev_Evgeny/assets/126493876/73c3e0e6-21e8-4d81-af4d-a49f4b2ace85)
 
+![124](https://github.com/Oigen181/Index-Andreev_Evgeny/assets/126493876/fe6213c5-2c36-4192-8b1a-1182019cc077)
+
 ---
